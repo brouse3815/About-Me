@@ -1,5 +1,5 @@
 About Me
 
-Spencer Curtis
+Brian Rouse
 
-Favorite Color: Blue
+Favorite Color: White
